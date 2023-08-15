@@ -1,3 +1,3 @@
-My first readme
+Life is sweet
 My first readme
 My first readme
