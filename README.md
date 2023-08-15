@@ -1,2 +1,2 @@
-Life is sweet
+life is sweet
 
